@@ -1,1 +1,1 @@
-Projects that were completed in Programming 2
+Projects that were completed throughout the course of my degree
